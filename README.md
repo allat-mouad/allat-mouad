@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **mouadallat69@gmail.com**
 
-- ⚡ Fun fact **I'm moroccan**
+- ⚡ Fun fact **ain't no geek**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
